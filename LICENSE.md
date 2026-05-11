@@ -1,4 +1,4 @@
-
+Get the ultimate Splashtop for macOS helper with top Splashtop for macOS Helper | custom-branding + wake-on-LAN. Featuring custom-branding and wake-on-LAN, it's the best choice
 
 
 
